@@ -1,1 +1,1 @@
-# Quran-indopak-script
+# Word-by-Word and full verse te
