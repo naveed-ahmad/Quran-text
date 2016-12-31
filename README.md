@@ -1,0 +1,1 @@
+# Quran-indopak-script
