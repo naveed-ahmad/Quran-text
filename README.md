@@ -1,1 +1,1 @@
-# Quran-indopak-script
+# Quran text in indopak script
